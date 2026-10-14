@@ -1,2 +1,1 @@
-# Been-a-while-again-
-why do I keep disappearing?
+whelp I’ve been gone and I just came across GitHub again. I’ve been gone because I’ve been supporting my friend who came back from the mental hospital, marching band, schoolwork, and most importantly-family. yes I might not be on here as the year continues but I will still “vent” because sometimes I need a break, you know? so I was just catching up on GitHub-how was your few weeks?
